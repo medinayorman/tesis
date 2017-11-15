@@ -1,0 +1,2 @@
+# rosas
+para ia
